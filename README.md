@@ -1,4 +1,4 @@
-## Welcome to Jacob's Github Page
+## Welcome to Jacob's Webpage
 
 Owned by **Jacob**
 
