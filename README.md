@@ -33,4 +33,4 @@ Now, Guch is a very special dog, she is treated like a princess in our house sin
 ![](https://scontent.fmnl25-2.fna.fbcdn.net/v/t1.15752-9/274184291_326339616120875_6858463698697360919_n.jpg?_nc_cat=102&ccb=1-5&_nc_sid=ae9488&_nc_eui2=AeG1O3sjtdmRGx6NrZyd3p2z7QB9aMNaxqftAH1ow1rGp7KyYsstg9U9_xEW2jpu3WIW9Vn60ZjoFgLlkyY-d84q&_nc_ohc=C3Qte4EWI84AX87Vw50&_nc_ht=scontent.fmnl25-2.fna&oh=03_AVIvmXC7-IiHqUkxwkdIm94PHh9jwTtVawfVkC02bqQVPQ&oe=62754CC9)
 
 
-# I hope you enjoy and Thank you for visiting the life of my dog, Guch!
+# I hope you enjoyed and Thank you for visiting the life of my dog, Guch!
