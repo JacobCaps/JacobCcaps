@@ -10,10 +10,10 @@ Owned by **Jacob**
 Guch is a 2 and a half-year old dog, she is a Shih Tzu born on October 1, 2019. She is the youngest among the 5 born and she is the only female amongst them. 
 
 ### **Guch's** Early times
-During Guch's first year, she was trained to do things like peeing or pooping in the right place, learning different trikcs or stunts in exchange of treats, and learning how to be nice in our family. She was my stress relief mainly because she likes cuddling with me and do funny things with me and my family.
+During Guch's first year, she was trained to do things like peeing or pooping in the right place, learning different tricks or stunts in exchange of treats, and learning how to be nice in our family. She was my stress relief mainly because she likes cuddling with me and do funny things with me and my family.
 
 ### Present Time
-Now, Guch is a very special dog, she is treated like a princess in our house since she doesn't go out. Although sometimes she is grumpy because of cats wandering around the streets and she doesn't like running that much but she likes playing catch with people around her. She also like the people around her and everytime we leave the house, she always wants to come with us.
+Now, Guch is a very special dog, she is treated like a princess in our house since she doesn't go out. Although sometimes she is grumpy because of cats wandering around the streets and she doesn't like running that much but she likes playing. She also like the people around her and everytime we leave the house, she always wants to come with us.
 
 ![](https://scontent.fmnl25-1.fna.fbcdn.net/v/t1.15752-9/277614284_660139771984629_8116933143307216256_n.jpg?_nc_cat=107&ccb=1-5&_nc_sid=ae9488&_nc_eui2=AeFJUR8-9cG9eH6w5hgFF7c3_3ENmtXolfD_cQ2a1eiV8Lru5A97yj2YwXP8t9z_aVCdNS5bGI7DQXkYJIqWU1ol&_nc_ohc=NBARq8a1Ln8AX--utYy&tn=MNC79TWbY1eza6Iz&_nc_ht=scontent.fmnl25-1.fna&oh=03_AVJYj9aEnJ0rpRo5wIJkH7DwSk2pISzDs7hf3m7IyAnwzw&oe=6274314E)
 
