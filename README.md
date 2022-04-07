@@ -7,7 +7,7 @@ Owned by **Jacob**
 # My dog, **Guch**!
 ### Who is **Guch**?
 
-Guch is a 3-year old dog, she is a Shih Tzu born on October 1, 2019. She is the youngest among the 5 born and she is the only female amongst them. 
+Guch is a 2 and a half-year old dog, she is a Shih Tzu born on October 1, 2019. She is the youngest among the 5 born and she is the only female amongst them. 
 
 ### **Guch's** Early times
 During Guch's first year, she was trained to do things like peeing or pooping in the right place, learning different trikcs or stunts in exchange of treats, and learning how to be nice in our family. She was my stress relief mainly because she likes cuddling with me and do funny things with me and my family.
